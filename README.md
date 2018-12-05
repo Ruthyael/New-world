@@ -1,3 +1,3 @@
 # New-world
 just a trial
-firs time
+learning phase
